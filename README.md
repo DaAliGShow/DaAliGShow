@@ -1,5 +1,4 @@
-<center>hi my name is kurt im 19 and a boy
-  <br>i like music and da ali g show/other sbc media</center>
+<center>kurt 19 boy i love sacha baron cohen media
   <br>i dont like fujoshis and i really dont like gooners also dont talk to me if you're under like 17 or watever
   <br>youll have to whisper me to get my attention im rarely active</center>
   <br>i love to hide people so if im sitting in the general vicinity of a freak dont think im weird i cant see them
